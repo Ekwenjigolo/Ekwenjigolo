@@ -12,7 +12,7 @@
 - 
 - 📫 You can reach me via [Email](ekwenjigolo@gmail.com) 
 
-  Connect with me on [LinkedIn](https://www.linkedin.com/in/ikechukwu-nnaji) 
+  Connect with me on [LinkedIn](https://www.linkedin.com/in/ikechukwu-nnaji-8704822a1?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
   
 - I'm HE. 
 
